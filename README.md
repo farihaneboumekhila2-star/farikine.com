@@ -1,0 +1,1 @@
+# farikine.com
